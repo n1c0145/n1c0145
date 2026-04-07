@@ -1,4 +1,4 @@
-👋 Hi, I’m @n1c0145
+👋 Hi, I’m Eduardo Loza
 
 Welcome to my Github respositories!!!
 
